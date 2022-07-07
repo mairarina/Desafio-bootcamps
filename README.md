@@ -2,4 +2,4 @@
 
 
 
-minha rotina
+minha rotina diária estudando 2 bootcamps
